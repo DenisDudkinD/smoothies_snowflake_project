@@ -1,0 +1,1 @@
+# smoothies_snowflake_project
